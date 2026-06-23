@@ -1,15 +1,15 @@
-#lana del rey
-##pretty when you cry
+#lana del rey#
+##pretty when you cry##
 [music](https://m.youtube.com/watch?v=2CSWw2OVxio&list=RD2CSWw2OVxio&start_radio=1&pp=ygUMbGFuYSBkZWwgcmV5oAcB0gcJCT8LAYcqIYzv)
 
 **All the pretty stars shine for you, my love**
 
 
-_the best singer_
+_a melhor cantora_
 
 
--good songs
--I like
+-suas músicas são incricríveis
+-ela é uma cantora perfeita
 
 
 
