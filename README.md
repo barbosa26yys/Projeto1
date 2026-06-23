@@ -13,4 +13,4 @@ _the best singer_
 
 
 
-![Lana](<img width="250" height="251" alt="17822128652306458051761858023726" src="https://github.com/user-attachments/assets/e68adf54-6aa5-4888-aa27-6bc3dd040004" />)
+![Lana](https://media.tenor.com/YfmNLGIrwzcAAAAC/lana-del-rey-lana-kiss.gif)
