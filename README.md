@@ -7,7 +7,7 @@
 **All the pretty stars shine for you, my love**
 
 
-_ a melhor cantora _
+_a melhor cantora_
 
 
 - suas músicas são incricríveis
