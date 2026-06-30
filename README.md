@@ -1,4 +1,4 @@
-#lana del rey
+#Lana del rey.
 
 ##pretty when you cry
 
